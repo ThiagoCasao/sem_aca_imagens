@@ -1,0 +1,1 @@
+sem_aca_imagens
